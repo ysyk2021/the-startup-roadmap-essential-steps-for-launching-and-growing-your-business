@@ -10,7 +10,6 @@ Whether you're an aspiring entrepreneur or a seasoned business owner, this book 
 
 Overall, "The Startup Roadmap: Essential Steps for Launching and Growing Your Business" is a must-read for any entrepreneur who wants to turn their startup idea into a successful, thriving business.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
