@@ -1,5 +1,3 @@
-The Impact of a Team and Company Culture on a Startup
-==============================================================
 
 A startup's success is heavily influenced by the collective efforts of its team members and the culture they foster. This chapter dives into the significant impact that a cohesive team and a strong company culture can have on the growth and sustainability of a startup.
 

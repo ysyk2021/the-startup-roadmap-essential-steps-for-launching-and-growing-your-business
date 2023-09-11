@@ -1,5 +1,3 @@
-Chapter 2: Developing an Entrepreneurial Mindset
-================================================
 
 In this chapter, we will explore the significance of cultivating an entrepreneurial mindset and provide techniques for developing such a mindset. We will also address common obstacles that entrepreneurs may encounter and discuss strategies for overcoming them.
 

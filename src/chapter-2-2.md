@@ -1,5 +1,3 @@
-Types of Entrepreneurship
-==================================
 
 In the world of entrepreneurship, there are various types and classifications that define the different approaches and characteristics of startups and entrepreneurs. This chapter explores the different types of entrepreneurship and provides insights into their unique characteristics and implications.
 

@@ -1,5 +1,3 @@
-Balancing Skills, Values, and Diversity
-================================================
 
 Achieving a balance between skills, values, and diversity is crucial for the success and sustainability of a startup. This chapter explores techniques and essential steps to create a harmonious blend of skills, values, and diversity within your startup.
 

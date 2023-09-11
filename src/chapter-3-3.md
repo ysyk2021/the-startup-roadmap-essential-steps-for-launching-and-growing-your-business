@@ -1,5 +1,3 @@
-Overcoming Obstacles to Entrepreneurship
-=================================================
 
 Starting a business is an exciting endeavor, but it also comes with its fair share of challenges and obstacles. This chapter explores some common obstacles faced by entrepreneurs and provides strategies to overcome them.
 

@@ -1,5 +1,3 @@
-Chapter 1: Understanding Entrepreneurship
-=========================================
 
 What is Entrepreneurship?
 -------------------------

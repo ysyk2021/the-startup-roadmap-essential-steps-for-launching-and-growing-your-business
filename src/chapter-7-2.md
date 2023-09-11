@@ -1,5 +1,3 @@
-Techniques for Building a Strong Team and Positive Culture
-===================================================================
 
 Building a strong team and fostering a positive culture are vital for the success and growth of a startup. This chapter explores various techniques and essential steps to create a cohesive team and cultivate a positive work environment.
 

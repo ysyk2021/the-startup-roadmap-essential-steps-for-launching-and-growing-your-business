@@ -1,4 +1,4 @@
-# Conclusion
+
 
 The Ongoing Journey of Launching and Growing a Business
 -------------------------------------------------------

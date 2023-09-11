@@ -1,5 +1,3 @@
-Chapter 8: Navigating Growth and Scaling
-========================================
 
 As your startup grows and scales, it's important to navigate the unique challenges of this phase in order to continue growing and thriving over the long term. In this chapter, we'll explore the challenges of growth and scaling, techniques for navigating them, and strategies for building adaptability and scalability into your operations.
 
